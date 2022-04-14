@@ -1,0 +1,3 @@
+- I go by TridentFlyer online
+- I only know python and am barely intermediate at it
+- They/Him (in preference order)

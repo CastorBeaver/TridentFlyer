@@ -1,3 +1,2 @@
-- I go by TridentFlyer online
-- They/Him (Preference order)
-- Python newbie
+- CastorBeaver
+- They / Him
